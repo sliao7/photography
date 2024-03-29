@@ -3,9 +3,10 @@ title: Cherry Blossom
 post-date: March 29, 2024
 updated-date: March 29, 2024
 author: Shasha Liao
+photographer: My friend Mandy
 ---
 
-I stumbled upon these beautiful cherry blossoms last Saturday at Piedmont Park! Sharing them with you here. Enjoy!🌸🌸🌸
+Life has been quite interesting lately. Each day unfolds as a unique journey for me, filled with surprises. For instance, last Saturday at Piedmont Park, I unexpectedly came across these stunning cherry blossoms. Sharing them with you here. Enjoy!🌸🌸🌸
 
 ![My Image](DSC06188.JPG)
 ![My Image](DSC06192.JPG)
